@@ -1,1 +1,1 @@
-# Color-Harmony
+# Color-Harmony ICA
